@@ -3,4 +3,4 @@ build a best image editor, better than <a href="https://bingimagecreator.vip/"> 
 it can be used in such scenarios, 
 <a href="https://idm-vton.online/"> Try on clothes virtually </a>
 
-<a href="https://idm-vton.online/"> Glow up </a>
+<a href="https://glowupai.vip/"> Glow up </a>
